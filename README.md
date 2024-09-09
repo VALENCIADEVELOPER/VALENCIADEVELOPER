@@ -1,7 +1,8 @@
 # 👨‍💻 **VALENCIA DESARROLLADOR**
 
 <p align="center">
-  <img src="[https://github.com/user-attachments/assets/31dd4cec-33ed-42f8-8e10-56a07ea76f5b" width="250px" alt="Avatar 3D](https://www.canva.com/design/DAGQQYtjOkU/ZnMVWPFq-VRDzudOYpSaiA/view?utm_content=DAGQQYtjOkU&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel)">
+  <img src="![Colorful Gradient Background Man 3D Avatar](https://github.com/user-attachments/assets/ab913ced-90db-4050-8eb7-61834da2d021)
+   ">
 </p>
 
 ---
